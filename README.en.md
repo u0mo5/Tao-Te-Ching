@@ -1,3 +1,12 @@
+《道德经》汉英对照 （林语堂 译本）
+"Tao and Teh " Chinese-English (Lin Yutang translation)
+
+道德经Tao and Teh
+老子 著laozi　works
+
+林语堂 英译Lin Yutang translation
+------------------------------------------------------------------
+
 一章
 
 道，可道，非恒道。名，可名，非恒名。无名，天地之始；有名，万物之母。故常无欲，以观其妙；常有欲，以观其徼。此两者同出而异名，
